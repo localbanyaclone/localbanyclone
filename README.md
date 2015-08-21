@@ -2,6 +2,6 @@
 Localbanya Clone : Online Grocery Script, Localbanya Clone Script, Localbanya Clone PHP
 
 
-Downlaod at 
+Download at 
 
 http://www.localbanyaclone.com
